@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @antonioribasalura
+- 👀 I’m interested in em sempre aprender mais
+- 🌱 I’m currently learning antonio.oliveira.ribas@escola.pr.gov.br
